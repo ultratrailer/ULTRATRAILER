@@ -2,11 +2,6 @@
 - name's chi / liam!
 - ask for pronouns ; no they/them..
 
-## INTERACTIONS
-- don't __heavily__ copy outfits
-- w2i if afk / off tab
-- mainly just c+h though! :D
-
 ## INTERESTS
 - __vocal synths__ 
 - __bandori__
