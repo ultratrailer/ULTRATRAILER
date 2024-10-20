@@ -1,16 +1,16 @@
-## Hi there 👋
+## ABOUT ME ( ˙꒳˙ )ﾌｧ！？
+- name's chi / liam!
+- ask for pronouns ; no they/them..
 
-<!--
-**ultratrailer/ULTRATRAILER** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## INTERACTIONS
+- don't __heavily__ copy outfits
+- w2i if afk / off tab
+- mainly just c+h though! :D
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## INTERESTS
+- __vocal synths__ 
+- __bandori__
+- needy streamer
+- milgram (t3 pls..)
+- imas (dere + shiny)
+- + a lot more!!
