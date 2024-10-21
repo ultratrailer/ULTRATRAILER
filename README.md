@@ -9,3 +9,6 @@
 - milgram (t3 pls..)
 - imas (dere + shiny)
 - + a lot more!!
+
+![](https://masarada.carrd.co/assets/images/image07.gif?v=c3f55b2e)
+- dadadadadadada ultradancer yauri is real
