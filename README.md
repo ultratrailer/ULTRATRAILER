@@ -3,12 +3,12 @@
 - ask for pronouns ; no they/them..
 
 ## INTERESTS
-- __vocal synths__ 
+- __vocal synths__
 - __bandori__
 - needy streamer
 - milgram (t3 pls..)
 - imas (dere + shiny)
-- + a lot more!!
+  + and a lot more!
 
 ![](https://masarada.carrd.co/assets/images/image07.gif?v=c3f55b2e)
-- dadadadadadada ultradancer yauri is real
++ dadadadadadada ultradancer yauri is real
